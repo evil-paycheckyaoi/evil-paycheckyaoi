@@ -2,7 +2,12 @@
 <p align="center"> <img align="center" src=https://readme-typing-svg.demolab.com?font=Carrois+Gothic+SC&duration=4000&pause=750&color=780116&center=true&width=1080&lines=%E2%80%9DWretch+and+pule+this+panoramic%E2%80%9E;%E2%80%9DStretched+out+view+is+fat+with+panic%E2%80%9E;%E2%80%9DPrecognition+lacks+in+hindsight%E2%80%9E;%E2%80%9DWe+caught+the+illness+back%E2%80%9E;%E2%80%9DBefore+the+twilight%E2%80%9E;%E2%80%9DI+might+be+a+saint+worth+steeples%E2%80%9E;%E2%80%9DI+might+be+the+brain+of+evil%E2%80%9E;%E2%80%9DBad+things+happen+to+good+people...%E2%80%9E;%E2%80%9D...Good+things+happen+to+me%E2%80%9E> </p>
 <img align="left" src=https://file.garden/Z1wsLskJxRiY2oPJ/20251209_210803.jpg width=360> <img align="right" src=https://file.garden/Z1wsLskJxRiY2oPJ/20251209_210715.jpg width=360>
 <p align="center"> <img align="center" src=https://readme-typing-svg.demolab.com?font=Carrois+Gothic+SC&duration=4000&pause=750&color=3F3244&center=true&width=1080&lines=%E2%80%9DThe+room+I'm+in+is+still+the+same%2C+the+shadows+have+not+rearranged+it%E2%80%9E;%E2%80%9DNo%2C+the+only+thing+that's+changed+is+how+I+see+at+night%E2%80%9E;%E2%80%9DI+fumble+for+the+switch+and+strap+on+infrareds+and+wish%E2%80%9E;%E2%80%9DFor+sunshine+when+the+morning's+somewhere+else%E2%80%9E;%E2%80%9DBut+I+can't+change+what+time+it+is+or+dilate+my+irises%E2%80%9E;%E2%80%9DOnly+what+I+look+at%2C+and+I'm+looking+at+myself%E2%80%9E;%E2%80%9DI+am+not+the+sunshine%2C+I+am+not+the+moon+at+night%E2%80%9E;%E2%80%9DWell%2C+who+else+could+I+be+when+I+can+hardly+see%3F%E2%80%9E;%E2%80%9DI+am+not+the+sunshine%2C+I+am+not+the+moon+at+night%E2%80%9E;%E2%80%9DI'm+no+one+if+I'm+nowhere+in+between%E2%80%9E> </p>
-<p align="center"> $${\color{red}I \space hate \space them\space someone \space shoot \space them \space <3}$$ </p>
+<p align="center"> $${\color{#780116}I \space hate \space them\space someone \space shoot \space them \space <3}$$ </p>
+<div align="center">
+  
+  [Subject 777's lore (do note it's a wip)](https://chronsrebirth.notepin.co/subject-777-rbheksij) 　. 　Oliver/Ellie Lore (haven't made it yet, please wait)
+
+</div>
 <div align="center">
   <details>
     <summary>     </summary>
